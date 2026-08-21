@@ -1,0 +1,1 @@
+# Soal-HOTS-Sosiologi-Bab-1-Kelas-10
